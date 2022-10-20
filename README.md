@@ -8,8 +8,7 @@ If you don't have, you can install.
 
 Then add my skypeId please.
 
-~Please do not say about skype in freelancer chat~
-(It is not good for us)
+~ Please do not say about skype in freelancer chat ~ (It is not good for us)
 
 Because of freelancer fee, i use skype and you can also add me.
 
