@@ -12,4 +12,4 @@ Then add my skypeId please.
 
 I use skype and you can also add me.
 
-Thanks
+Thanks.
